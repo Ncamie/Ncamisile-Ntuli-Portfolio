@@ -23,4 +23,4 @@
 
 ## Connect With Me
 LinkedIn: https://www.linkedin.com/in/ncamsile-n-748901276/
-Portfolio: https://vm-84katt5f3n0t3wyreor3ew93.vusercontent.net/
+Portfolio: https://ncamisile-ntuli-ai-ml-portfolio-380563657014.europe-west2.run.app/
